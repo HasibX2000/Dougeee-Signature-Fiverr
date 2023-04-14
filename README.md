@@ -1,4 +1,4 @@
 # Dougeee-Email-Signature---Fiverr
 
-## Clickable signature designed by 'Akon M Hasib' 
-## Whatsapp: https://wa.me/8801754752096
+## Clickable signature designed by 'Friday Frodo' 
+## Whatsapp: https://wa.me/8801701123328
